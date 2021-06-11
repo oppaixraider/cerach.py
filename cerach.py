@@ -1,4 +1,5 @@
 #go to nico-nico.chatango.com mother fucker
+#ga mau ngeshare nnti kenak tumbok agung sama tubu
 
 
 
